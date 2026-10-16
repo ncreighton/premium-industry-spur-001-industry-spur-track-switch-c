@@ -1,0 +1,2 @@
+# premium-industry-spur-001-industry-spur-track-switch-c
+Tired of scattered notes, forgotten supplies, and messy switch lists that derail your model railroad progress? You spend more time searching for information than actually building your layout.  The Industry Spur Track &amp; Switch Craft Hub is the only Notion template built specifically for the creative workflow of model railroaders, not just generic p
